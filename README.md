@@ -1,0 +1,2 @@
+- Hello, I am @marco-teodori
+- I am just hanging out here to learn something and practice on other funny things, to be more reliable at work.
